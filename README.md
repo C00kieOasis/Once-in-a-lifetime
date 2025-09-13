@@ -1,3 +1,2 @@
 # Once-in-a-lifetime
-"𝔼𝕧𝕖𝕟𝕚𝕟𝕘 𝕝𝕒𝕕𝕚𝕖𝕤 𝕒𝕟𝕕 𝕘𝕖𝕟𝕥𝕤 𝕒𝕟𝕕 𝕥𝕙𝕠𝕤𝕖 𝕨𝕙𝕠 𝕙𝕒𝕧𝕖𝕟'𝕥 𝕕𝕖𝕔𝕚𝕕𝕖𝕕 𝕪𝕖𝕥. 𝕎𝕖𝕝𝕔𝕠𝕞𝕖 𝕥𝕠 𝕥𝕙𝕖 𝕔𝕣𝕦𝕞𝕓𝕝𝕚𝕟𝕘 𝕤𝕚𝕕𝕖 𝕠𝕗 𝕥𝕙𝕖 𝕚𝕟𝕥𝕖𝕣𝕟𝕖𝕥!"
-![56a89d72d4c48d2bcb34e454b4d3c38e](https://github.com/user-attachments/assets/e82f2878-0ccb-49d9-88bd-ad316bcfa5c7)
+There will be a time where you have a desicion to make. One that you want to do, but cant bring yourself to do it. The fear consumes you. Even though you really want to move forward. You fear that you wont be able to make it. That you will fail at what your good at. That you will ruin the mood. That you will never go back. Its normal, But it dosent feel that way... does it?
